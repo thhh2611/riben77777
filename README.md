@@ -20,4 +20,4 @@
 
 立即点击任意入口，开启你专属的高清日本AV体验，享受真正纯净、快速、无负担的看片之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben77777 ）</span> 
